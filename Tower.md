@@ -3,6 +3,12 @@ I used to main ways of research. The first being watching my classmates buold th
 - https://youtu.be/tuEBEKOProY
 - https://youtu.be/ykc9LvUEuWE
 # Ideation
+My goal with ideation was to come up with a basis of ideas and exapnd on just thinking
+![image](https://github.com/StAndrewsCollege/2324-tej3m-5-e-0-sprint0-RhysBurge/assets/156111780/08701703-5bf4-4a0e-854d-be64054594c9)
+![image](https://github.com/StAndrewsCollege/2324-tej3m-5-e-0-sprint0-RhysBurge/assets/156111780/62c2b663-d2ed-4ba0-bbb5-1e192101d7bb)
+![image](https://github.com/StAndrewsCollege/2324-tej3m-5-e-0-sprint0-RhysBurge/assets/156111780/769d557a-b5e3-4de4-a455-a6afc8736850)
+![image](https://github.com/StAndrewsCollege/2324-tej3m-5-e-0-sprint0-RhysBurge/assets/156111780/abded552-3c6e-44a6-ab92-4c3ac045b70c)
+
 # Prototyping
 for prototyping i used many diffrent ways to construct a plan to build. My main goal was to find strategies that worked the best and make as many as possible to see the best outcome.
 ![image](https://github.com/StAndrewsCollege/2324-tej3m-5-e-0-sprint0-RhysBurge/assets/156111780/22176aae-3303-4874-84b2-1e83b16fada5)
